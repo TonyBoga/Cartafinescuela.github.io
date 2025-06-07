@@ -1,1 +1,0 @@
-# Carta-fin-de-a-o
